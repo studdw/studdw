@@ -5,7 +5,7 @@
 Jovem Talento na **Libbs Farmacêutica** (Inovação e Desenvolvimento do Negócio · Novos Produtos — Varejo) · Estudante de ADS na FIAP · TI & Dados
 
 📍 São Paulo, SP — Brasil  
-🌐 [Portfólio](https://lucas-pasturuti.vercel.app/) · 💼 [LinkedIn](COLE_SEU_LINK_DO_LINKEDIN) · ✉️ [lucaskaftanp@gmail.com](mailto:lucaskaftanp@gmail.com)
+🌐 [Portfólio](https://lucas-pasturuti.vercel.app/) · 💼 [LinkedIn](https://www.linkedin.com/in/lucas-pasturuti-354523273/) · ✉️ [lucaskaftanp@gmail.com](mailto:lucaskaftanp@gmail.com)
 
 ---
 
